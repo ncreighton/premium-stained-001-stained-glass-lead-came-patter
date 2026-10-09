@@ -1,0 +1,2 @@
+# premium-stained-001-stained-glass-lead-came-patter
+Tired of sketching lead came patterns freehand, only to waste materials when measurements don't align? The Stained Glass Lead Came Pattern Guide eliminates guesswork by organizing every element of your design in one centralized, reusable Notion workspace.  This template transforms how you plan stained glass projects by giving you a structured syste
